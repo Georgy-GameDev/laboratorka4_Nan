@@ -1,0 +1,1 @@
+# laboratorka4_Nan
